@@ -1,4 +1,4 @@
-#  
+#  rare Scripts for jump to steal lucky blocks is the best jump to steal lucky blocks Script, featuring esp and private server access. Safe and powerful
 
 
 
